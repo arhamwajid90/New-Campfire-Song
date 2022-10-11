@@ -16,10 +16,12 @@ with some watermelon
 and some koolaid
 and some candy
 but make sure that you...
-Don't vomit from overeating
+Don't vomit from overeating!
+As we sing along to the campfire song!
 .
 .
 .
 Know your limits as we're all gathered
 around this campfire
-So sing along!
+having a blast
+So sing along as its the campfire song! 
