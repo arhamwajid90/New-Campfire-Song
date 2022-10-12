@@ -25,3 +25,6 @@ Know your limits as we're all gathered
 around this campfire
 having a blast
 So sing along as its the campfire song! 
+Everyone is welcome here
+whether you are from new jersey or hong kong
+SING THIS SONG LAUGHING AROUND NO TEARS
